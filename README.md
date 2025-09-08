@@ -1,1 +1,0 @@
-# Loievskyi-Nikita-2F1
